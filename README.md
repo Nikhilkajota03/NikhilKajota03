@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Nikhil Kajota
 **Full Stack AI Engineer**
 
-Email Me 👉 ✉️ **alamimran613@live.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **nikhil941kajota@live.com** For Collaboration/Project or Anything Else. 😊😊
 
 
 ## 🌐 Socials:
